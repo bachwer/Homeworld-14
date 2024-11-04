@@ -9,14 +9,14 @@ Homeworld-14
 
 [Cơ bản]4. Làm quen với nhóm lệnh clone : https://scratch.mit.edu/projects/1091096620
 
-[Khá]5. Luyện tập với nhóm lệnh clone
+[Khá]5. Luyện tập với nhóm lệnh clone : https://scratch.mit.edu/projects/1091131498
 
-[Khá]6. Luyện tập với nhóm lệnh clone
+[Khá]6. Luyện tập với nhóm lệnh clone : https://scratch.mit.edu/projects/1091126771
 
-[Giỏi]7. Luyện tập với nhóm lệnh clone
+[Giỏi]7. Luyện tập với nhóm lệnh clone : https://scratch.mit.edu/projects/1091136352
 
-[Giỏi]8. Luyện tập với nhóm lệnh clone
+[Giỏi]8. Luyện tập với nhóm lệnh clone : https://scratch.mit.edu/projects/1091142345
 
-[Xuất sắc]9. Luyện tập với nhóm lệnh clone
+[Xuất sắc]9. Luyện tập với nhóm lệnh clone : https://scratch.mit.edu/projects/1091146619
 
-[Xuất sắc]10. Luyện tập với nhóm lệnh clone
+[Xuất sắc]10. Luyện tập với nhóm lệnh clone : 
