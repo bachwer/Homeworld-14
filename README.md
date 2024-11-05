@@ -19,4 +19,4 @@ Homeworld-14
 
 [Xuất sắc]9. Luyện tập với nhóm lệnh clone : https://scratch.mit.edu/projects/1091146619
 
-[Xuất sắc]10. Luyện tập với nhóm lệnh clone : https://scratch.mit.edu/projects/1091157614/editor
+[Xuất sắc]10. Luyện tập với nhóm lệnh clone : https://scratch.mit.edu/projects/1091157614
